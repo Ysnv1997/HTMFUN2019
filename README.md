@@ -27,6 +27,3 @@
 [![](https://i.loli.net/2019/02/01/5c541613de8b4.png)](https://i.loli.net/2019/02/01/5c541613de8b4.png)
 
 或者点一下文章下方的广告也行呀！
-
-下载地址在这里啦！
-[need_reply] https://github.com/Ysnv1997/HTMFUN2019 [/need_reply]
